@@ -1,6 +1,6 @@
 # FSCloud机场官网地址
 
-最新地址：[fscloud.cc](https://www.fscloud.cloudns.biz/#/register?code=35JarCCV)
+最新地址：[fscloud.cc](https://777.fscloud.sbs/#/register?code=35JarCCV)
 
 ## FSCloud介绍
 
